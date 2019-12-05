@@ -1,2 +1,2 @@
-Richard Stepaniuk
-#Completely Lost
+Richard Stepaniuk is,
+# Completely Lost
